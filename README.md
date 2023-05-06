@@ -1,5 +1,5 @@
 # 💫 Sobre Mi:
-😊Hola!, Me llamo Jorge Tapia tengo 23 años y soy de Chile.<br>🎓 Soy estudiante de Ingeniería en Informática | Duoc Uc.<br>🤖 Me apasiona la Innovación y el Desarrollo de soluciones a problemáticas.<br>🤝 Me gusta enseñar mis conocimientos, liderar equipos de trabajo y desarrollar aplicaciones.<br>🌱 Aprendo rápido y siempre me encuentro en constante aprendizaje.<br>💼 Actualmente soy CEO de DEV HOUSE.<br>🌳  Lideró diversos equipos y proyectos en el Centro de Innovación y Transferencia Tecnológica de Duoc UC
+😊Hola!, Me llamo Jorge Tapia tengo 23 años y soy de Chile.<br>🎓 Soy estudiante de Ingeniería en Informática | Duoc Uc.<br>🤖 Me apasiona la Innovación y el Desarrollo de soluciones a problemáticas.<br>🤝 Me gusta enseñar mis conocimientos, liderar equipos de trabajo y desarrollar aplicaciones.<br>🌱 Aprendo rápido y siempre me encuentro en constante aprendizaje.<br>🌳  Lideró diversos equipos y proyectos en el Centro de Innovación y Transferencia Tecnológica de Duoc UC
 
 
 ## 🌐 Redes Sociales:
